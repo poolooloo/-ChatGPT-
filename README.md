@@ -16,3 +16,4 @@ Chat.aidutu.cn	速度快，无限制	😄⭐
 Chat.wobcw.com	有条件使用	😄⭐
 Openmao.panchuang.net		🆕 😄⭐
 B.mydog.buzz		🆕 😄⭐
+![免费gpt群](./img/gpt0424.png)
