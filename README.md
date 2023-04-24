@@ -17,3 +17,6 @@ Chat.wobcw.com	有条件使用	😄⭐
 Openmao.panchuang.net		🆕 😄⭐
 B.mydog.buzz		🆕 😄⭐
 ![免费gpt群](./img/gpt0424.png)
+欢迎关注公众号-新潮看世界
+每日提供最新ChatGpt，AI模型，人工智能，大数据信息
+
